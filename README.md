@@ -24,4 +24,6 @@ Create the perfect experience for your players without hassle. Everything is des
 
 🔥 Make your server stand out with a professional and unique system.
 
+PREVIEW VIDEO: https://youtu.be/XwevGhKTJ5I?si=t5U8mdSClamHKyDK
 TEBEX: https://redhub.tebex.io/package/7362967
+
